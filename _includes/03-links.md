@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://github.com/MsEmaline)
+![Image of profile](https://github.com/MsEmaline)
